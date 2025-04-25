@@ -1,1 +1,1 @@
-# moja-strona
+# Okna, drzwi, rolety, bramy garażowe
